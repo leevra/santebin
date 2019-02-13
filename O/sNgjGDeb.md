@@ -1,1 +1,1 @@
-<meta http-equiv="refresh" content="0;url=https://open.kakao.com/o/sNgjGDeb">
+<meta http-equiv="refresh" content="0;url=https://open.kakao.com/o/sDOHwLeb">
