@@ -1,1 +1,1 @@
-<meta http-equiv="refresh" content="0;url=https://open.kakao.com/o/semJd5eb">
+<meta http-equiv="refresh" content="0;url=https://emergency.fund.lab.leeseungju.com/">
